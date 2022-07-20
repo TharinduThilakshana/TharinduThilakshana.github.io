@@ -1,2 +1,2 @@
-# TharinduThilakshana.github.io
+# Tharindu Thilakshana
 My Official Website
